@@ -1,4 +1,4 @@
-> **SOURCE_SIGNAL:** [sololiquid.com]
+> **SOURCE_SIGNAL:** [sololiquid.com](https://sololiquid.com)
 
 ## // THE MANIFESTO: PURE SIMULATION
 
