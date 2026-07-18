@@ -1,3 +1,5 @@
+> **SOURCE_SIGNAL:** [sololiquid.com]
+
 ## // THE MANIFESTO: PURE SIMULATION
 
 The human brain is a PURE SIMULATION SYSTEM. People don’t consume products; they consume electric signals, dopamine, and neural illusions. The cyber-grid is wired to mirror the neural network—a giant grid of impulse, reaction, and priority routing.
